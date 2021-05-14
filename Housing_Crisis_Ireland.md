@@ -1,8 +1,9 @@
 Dear Sir/Madam,  
   
 I am emailing you as a constituent of yours. I am very concerned about the
-government's lack of action on the housing crisis. The raising of stamp duty as
-proposed by government could only serve to adversely affect first time buyers. 
+government's lack of action on the housing crisis. The doubling of stamp duty 
+and increasing further to 7.5% has not been sufficient to disencentivise 
+commercial ventures. Another, more effective approach needs to be applied. 
 The issue at it's core is that there are companies who's goal it is to buy up 
 all the property they can and not contribute anything to our society. These 
 REIT schemes have been banned by Germany. I propose that a similar stance is 
