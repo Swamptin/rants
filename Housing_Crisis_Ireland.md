@@ -28,6 +28,8 @@ between those ages in the 1970s 62% were home owners. Many of this demographic
 will never be able to retire. The cost of living prevents them from being able
 to contribute to a pension, and the state pension will not be sufficient to
 cover their cost of living once they reach retirement age.  
+The full report can be found here:  
+https://www.esri.ie/publications/poverty-income-inequality-and-living-standards-in-ireland-0  
   
 If these issues are not addressed there can be little expectation that the
 younger working population of Ireland remain in Ireland. With no support for
